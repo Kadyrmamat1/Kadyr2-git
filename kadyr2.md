@@ -1,1 +1,1 @@
-ata turk ala-too
+college
